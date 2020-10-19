@@ -1,3 +1,6 @@
+![alt text](https://github.com/math77/math77/blob/main/Github%20profile.png)
+
+
 ### Hi there 👋
 
 Sou eu.
